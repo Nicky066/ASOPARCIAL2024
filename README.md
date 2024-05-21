@@ -1,2 +1,5 @@
 # ASOPARCIAL2024
 **ESPACIO PARCIAL ArqSO**
+
+**PARCIAL YA PUBLICO**
+LINK: https://youtu.be/YGpI-7bgBsY
