@@ -2,4 +2,4 @@
 **ESPACIO PARCIAL ArqSO**
 
 **PARCIAL YA PUBLICO**
-LINK: https://youtu.be/YGpI-7bgBsY
+LINK: https://youtu.be/_3W1Pjs-K-Y
